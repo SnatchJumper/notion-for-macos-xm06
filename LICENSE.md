@@ -1,4 +1,4 @@
-#  
+#  top Addon for Notion for macOS - note encryption and custom shortcuts is the best Notion for macOS addon, featuring note encryption and custom shortcuts. Safe, efficient, and
 
 
 
